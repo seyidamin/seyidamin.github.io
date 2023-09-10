@@ -1,0 +1,1 @@
+# seyidamin.github.io
